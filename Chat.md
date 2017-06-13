@@ -10,4 +10,6 @@
 
 -KHÔNG yêu cầu người khác cung cấp email,password trực tiếp. Nếu cần thiết thì inbox cá nhân
 
+-Ngưng sử dụng Camon, Mơn, cảm ơn thì nói thẳng ra.
+
 -Copy ảnh trên mạng nhớ ghi nguồn
