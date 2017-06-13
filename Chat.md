@@ -12,4 +12,11 @@
 
 -Ngưng sử dụng Camon, Mơn, cảm ơn thì nói thẳng ra.
 
--Copy ảnh trên mạng nhớ ghi nguồn
+-Nói bậy thì sử dụng từ lóng, tránh nói thằng ra.
+
+-Copy ảnh trên mạng nhớ ghi nguồn.
+
+P/s: Do github không hỗ trợ cho quyền người xem sửa luật nên nếu cảm thấy cần chỉnh sửa hãy inbox lên group. Thằng đang gõ sẽ ngồi duyệt
+
+
+...sẽ update
